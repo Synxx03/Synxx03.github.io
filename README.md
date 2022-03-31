@@ -1,2 +1,2 @@
-# Synxx03.github.io
-Aquapollinate Host
+# AQUAPOLLINATE
+HYDRATED PERSPECTIVES & SOLUTIONS
